@@ -1,4 +1,4 @@
-# 
+# updated Bot for geckoterminal sniper bot | auto-sell & pump-detection offers the most advanced geckoterminal sniper bot, with auto-sell and pump-detection. Ideal for professional
 
 
 
